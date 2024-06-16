@@ -1,3 +1,7 @@
+SEMUA YANG ADA DI DALAM PAGE TERSEBUT TIDAK SEMUANYA BENAR
+HARAP DI MAKLUMI JIKA ADA KESALAHAN
+Hubungi Saya jika anda adalah pemilik bisnis tersebut, kami akan mentakedown jika tidak boleh digunakan
+
 Thanks for downloading this template!
 
 Template Name: Logis
